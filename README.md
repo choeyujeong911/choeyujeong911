@@ -1,4 +1,4 @@
-# Lying Dictionary (척척석사)
+# 📘Lying Dictionary (척척석사)
 
 > ### Pre-Contacted Junior (I enjoy)<br/>
 > ***계약-미리한 노예 (즐겁다)***<br/>
